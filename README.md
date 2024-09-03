@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KaiTrann
-- 👀 I’m interested in league of legends, coding, Anime.
+- 👀 I’m interested in league of legends, coding, anime.
 - 🌱 I’m currently learning software enginere.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
